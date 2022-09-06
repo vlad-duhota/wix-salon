@@ -97,12 +97,19 @@
 # Головна сторінка
 
 [Фото 1](https://drive.google.com/file/d/1qY18X3HiAG3rFMv6MC7fnhA3D2-JIGaS/view?usp=sharing)
+
 [Фото 2](https://drive.google.com/file/d/1G1zzcJGuA1hBikccnZbMtXk6pqjMTONf/view?usp=sharing)
+
 [Фото 3](https://drive.google.com/file/d/1-s9seMC4CyNlC82WFDoYMqfB24VXZFyv/view?usp=sharing)
+
 [Фото 4](https://drive.google.com/file/d/1WG4xNg5fM_HB5fM5sY6QgdwITSZ92-N5/view?usp=sharing)
+
 [Фото 5](https://drive.google.com/file/d/10rkzU0OayYQaIj8BuJ1jzqaXLLsEh4VY/view?usp=sharing)
+
 [Фото 6](https://drive.google.com/file/d/1d-VX7Q7ko_wG6VHUjI1taoGgJS4bY4O0/view?usp=sharing)
+
 [Фото 7](https://drive.google.com/file/d/1U2R5tFNtDiGgjp8vngw47RyrD4W3KIe7/view?usp=sharing)
+
 [Фото 8](https://drive.google.com/file/d/1QgkejgJkt5QGxSjPORElNCdNKi8TMFsl/view?usp=sharing)
 
 ---
@@ -110,7 +117,9 @@
 ---
 
 [Фото 1](https://drive.google.com/file/d/1MRymQef6qEEMHoq-2Owfkx3Uh4zotKLM/view?usp=sharing)
+
 [Фото 2](https://drive.google.com/file/d/1GvYesHGh4BmBdzcMItbPXfoOEHZcbgiZ/view?usp=sharing)
+
 [Фото 3](https://drive.google.com/file/d/1mG4sWHvc4BlmmZkRqzUNjpGe7vHYYNdv/view?usp=sharing)
 
 ---
@@ -118,7 +127,9 @@
 ---
 
 [Фото 1](https://drive.google.com/file/d/1WsMcWC31uw8unMfNxhSB8gxSj29JKz4e/view?usp=sharing)
+
 [Фото 2](https://drive.google.com/file/d/1AbpWsnv4qpQz6C3SQW-6mnH6UnQt91vg/view?usp=sharing)
+
 [Фото 3](https://drive.google.com/file/d/1u7o0j4d1UpUbdNyXpsmwaRolcmocT4GL/view?usp=sharing)
 
 ---
@@ -126,5 +137,7 @@
 ---
 
 [Фото 1](https://drive.google.com/file/d/1uMnAh04grsKk0TfgwwHjNpy_dWK_igCi/view?usp=sharing)
+
 [Фото 2](https://drive.google.com/file/d/16Ec6xokNMwno_IuarNf4sQd4MS8Ohi5A/view?usp=sharing)
+
 [Фото 3](https://drive.google.com/file/d/10_yth8fPyuq0gSdCMWFqueWljGcYbYDL/view?usp=sharing)
